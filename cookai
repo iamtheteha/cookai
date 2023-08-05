@@ -1,0 +1,1 @@
+#cookai made by teha
